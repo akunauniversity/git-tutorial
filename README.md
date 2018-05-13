@@ -1,1 +1,1 @@
-Sun May 13 13:42:17 CST 2018
+Sunday May 13 13:42:17 CST 2018
